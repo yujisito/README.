@@ -1,9 +1,10 @@
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/72819601-aec5-4682-97bf-7f3d5a0311be" />
 <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/20b223aa-5838-4e2f-ac51-6fb896c85d5d" />
+<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/27be6909-7277-4444-baf5-7f213a2591b6" />
+
 
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
-    <img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/a0b22319-9043-4d8a-84d0-001cf6521296" />
-
+    
 💝’ed[strᥲw](https://lowkeynerdxd.straw.page) .☘︎ ݁˖[gυᥒsᥣoᥣ](https://guns.lol/yujisito)◝✩[sρotιfყ ρᥣᥲყᥣιst](https://open.spotify.com/playlist/6tUwqMk967MJnAnoeqJK36?si=RpxGcWQFSOiKMuqS3tQ8ug&utm_source=copy-link&pi=cbnaofZ-SdOTW)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/97c69f01-b0c2-4843-9573-e661430f7e22" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2671c793-6326-48c4-b393-cd2bc27a2f65" /> 
