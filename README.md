@@ -5,8 +5,7 @@
 
 
         Wꫀׁׅܻᥣׁׅ֪ᝯׁᨵׁׅ ꩇׁׅ݊ꫀׁׅܻ  ︶༉‧₊˚.
-  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a4b0cdb7-6f2f-488b-b4ab-72479c63f514" />
-      <img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/b6e5d0da-0cbb-40ea-9f95-60a389bbc1d4" /><img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/a859f5c5-aebc-4282-8301-e5be069af198" />   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8d5ee093-ab19-47d0-b3fa-e45c4eab7f9c" />
+  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a4b0cdb7-6f2f-488b-b4ab-72479c63f514" /> <img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/b6e5d0da-0cbb-40ea-9f95-60a389bbc1d4" /><img width="26" height="21" alt="image" src="https://github.com/user-attachments/assets/a859f5c5-aebc-4282-8301-e5be069af198" />   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8d5ee093-ab19-47d0-b3fa-e45c4eab7f9c" />
 
 
 
