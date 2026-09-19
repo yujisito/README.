@@ -39,8 +39,9 @@ check straw 4 more info
 
 
 
+<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/5212bd99-9ee2-49c1-8be5-c61efb2aff98" />
 
-<img width="430" height="450" alt="image" src="https://github.com/user-attachments/assets/5819d7d3-78e6-4d07-a02d-39f234bfe806" />
+
 
   
 
