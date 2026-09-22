@@ -1,5 +1,7 @@
 
 <img width="511" height="112" alt="image" src="https://github.com/user-attachments/assets/592bb193-bebe-4495-8f90-a69ab5b365e1" />
+<img width="964" height="761" alt="image" src="https://github.com/user-attachments/assets/76bd35aa-78d7-4938-a83a-ba8c718b5eb2" />
+
 everything is so messy in here idc
 
 
