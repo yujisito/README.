@@ -1,4 +1,5 @@
-<img width="457" height="200" alt="image" src="https://github.com/user-attachments/assets/ed702942-25bc-4aef-9a22-78e64e75638a" />
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/2a753337-e50b-44be-86da-808b607e0a72" />
+
 check straw 4 more info
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0a0350f1-5ab7-4434-ab08-c07a9aac8717" />
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/895d9b08-a83a-48fc-9448-5a7250e0f9bf" />
