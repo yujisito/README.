@@ -33,7 +33,7 @@ everything is so messy in here idc
 
 
 
- /><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/a2b4f11f-78ed-45a6-a615-a68e57e95cc7" /><img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/939b59e6-edfd-4ff8-abe3-d6469ffae847" /><img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/bb820152-3ec2-4709-baac-f28d8df40dc3" />
+ <img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/a2b4f11f-78ed-45a6-a615-a68e57e95cc7" /><img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/939b59e6-edfd-4ff8-abe3-d6469ffae847" /><img width="100" height="56" alt="image" src="https://github.com/user-attachments/assets/bb820152-3ec2-4709-baac-f28d8df40dc3" />
 
 
 
